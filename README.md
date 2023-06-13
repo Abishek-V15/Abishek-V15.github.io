@@ -9,7 +9,7 @@ I am actively seeking new opportunities to contribute my talent in the field of 
 
 Explore this repository to gain insights of my projects, code samples, and technical things. 
 
-you can aslo Connect with them through LinkedIn profile or reach out via email for collaboration or job opportunities.
+you can aslo Connect with me through LinkedIn profile or reach out via email for collaboration or job opportunities.
 
 LinkedIn: https://www.linkedin.com/in/abishekv15/
 
