@@ -15,6 +15,6 @@ LinkedIn: https://www.linkedin.com/in/abishekv15/
 
 Email: abishekv2012@gmail.com 
 
-Thank you for visiting my GitHub repository, and Abishek looks forward to connecting with you!
+Thank you for visiting my GitHub repository, and looking forward to connecting with you!
 
 Have a great day!.
